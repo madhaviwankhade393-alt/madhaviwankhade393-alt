@@ -1,6 +1,6 @@
 # Hi, I'm Madhavi 
 
-🎓 Computer Engineering Student
+🎓 Computer Science & Engineering Student
 
 💻 Currently Learning:
 
